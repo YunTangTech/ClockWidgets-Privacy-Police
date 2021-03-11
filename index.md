@@ -1,4 +1,4 @@
-## Welcome to Clock Widgets
+## Welcome to Clock Widgets Privacy Policy
 
 **Privacy Policy**
 
